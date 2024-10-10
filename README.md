@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @iiTzJeroen
+- 👀 I’m interested in Gaming!!
+- 🌱 I’m currently learning IT Stuff.
+- 📫 How to reach me: iitzjeroen on discord!!
+- 😄 Pronouns: He/him
+- ⚡ Fun fact: “It does not do to dwell on dreams and forget to live” ― J.K. Rowling, Harry Potter and the Sorcerer's Stone
